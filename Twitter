@@ -1,0 +1,1 @@
+coco.os == push pacman -Syu
