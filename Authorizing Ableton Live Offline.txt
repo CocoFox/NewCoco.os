@@ -1,4 +1,4 @@
-﻿Instructions for Offline Authorization
+Instructions for Offline Authorization
 --------------------------------------
 
 Here’s what you need for offline authorization:
@@ -12,4 +12,4 @@ Here’s what you need for offline authorization:
 - Your hardware code: 2249-B957-B9EF-1941-549D-1E7F
 
 On an internet-connected computer, go to www.ableton.com/authorize.
-This web page will provide you with more information.
+This web page will provide you with more information.coco.os->git.cocofox.os</node.js>
