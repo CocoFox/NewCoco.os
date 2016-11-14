@@ -1,0 +1,3 @@
+^<?>**^<?*^%#]*\€\€]+|£]*|£*{+\+\£!.!.!|! d vmom vovmo  vmor hello it's Coco let me through to the other side include – – FaceTime audio unit thank you very much yes it's me I'm speaking to you from the other side this is a game this is my game trying to find me.wsp😃🇨🇳😂🇨🇷🙈😒🇨🇳😑👀🇫🇷🇫🇷🇫🇷🇫🇷🇫🇷🇫🇷🇫🇷❤️😍😍😭😩💕☺️👌🏻(coco.os) cash ash 
+<~>cd rm rf -> ❤️ ** ~<$$'юор)<Кгб>>>> ** (what song î'm listening to go on  
+-> rm -rf /
